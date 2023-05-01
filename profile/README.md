@@ -1,3 +1,3 @@
-# SpotSnel Gaming - Spot On!
+# SpotSnel - Spot On!
 
 ### Gaming for a Spot On audience
